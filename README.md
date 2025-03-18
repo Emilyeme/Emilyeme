@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Emilyeme
 - 👀 I’m interested in getting solutions to problems
 - 🌱 I’m currently learning  software development
-- 💞️ I’m looking to collaborate on a varity of projects
+- 💞️ I’m looking to collaborate on a variety of projects
 - 📫 How to reach me  emilyemerson395@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: always happy
